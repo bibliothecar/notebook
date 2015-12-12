@@ -1,6 +1,6 @@
 # Taylor, Marvin J. 2002. “‘I’ll Be Your Mirror, Reflect What You Are’: Postmodern Documentation and the Downtown New York Scene from 1975 to the Present.” *RBM: A Journal of Rare Books, Manuscripts and Cultural Heritage* 3 (1): 32–51.
 
-The article can be found online at [http://rbm.acrl.org/content/3/1/32](http://rbm.acrl.org/content/3/1/32) (accessed 20151211)
+My notes on the article, which can be found online at [http://rbm.acrl.org/content/3/1/32](http://rbm.acrl.org/content/3/1/32) (accessed 20151211)
 
 ## Notes
 
